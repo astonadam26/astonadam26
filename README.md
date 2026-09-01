@@ -1,4 +1,4 @@
-### Hi, I'm Adam 👋
+### Hi, I'm Adam 👋 I cannot code...
 
 **Creative Director** at [nxtedition](https://nxtedition.com)
 
